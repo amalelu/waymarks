@@ -1,2 +1,0 @@
-# Zaphenath-Paneah
-
